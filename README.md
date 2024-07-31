@@ -1,11 +1,8 @@
-![](https://komarev.com/ghpvc/?username=ranpos&color=dedede)
+![](https://komarev.com/ghpvc/?username=ranpos&color=877287)
 
-sorry that all of my things are kind of messy ouhuhh </br>
-prns page wip </br>
-rmking rentry </br>
-rmking retrospring </br>
-atabook + strawpage awaiting rmk but currently up!!</br>
-
-cute submissions from my strawpage ^_^ </br>
-
-![](https://files.catbox.moe/v9qgph.png) ![](https://files.catbox.moe/xnys57.png)
+<p align="center">
+<img src="https://files.catbox.moe/vpov69.png"/> <br>
+$\text{\color{#877287}{ranpo　୨୧　he/soothe}}$ <br>
+$\text{\color{#69616c}{seventeen　✿　( ˶ˆᗜˆ˵ )}}$ <br>
+$\text{\color{#877174}{whisp 2 int　♡　08 12 23}}$
+</p>
