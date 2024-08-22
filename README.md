@@ -16,7 +16,7 @@ basic boundaries or something
 short dni list <br>
 - basic dni criteria ;-;
 - problematic media likers (okegom, tcoaal, ranfren, alfreds playhouse, pretty blood, etc)
-- hazbin hotel/helluva boss, jjba, one piece, aot, bnha/mha, prsk/pjsk cosplayers/skins PLEASE !!
+- hazbin hotel/helluva boss, jjba, one piece, aot, bnha/mha, prsk/pjsk cosplayers/skins
 - izuku midoriya/deku fans, likers, kins etc idgaf do NOT interact if you identify urself with him
 - if youre annoying do not interact thank you
 - under 15 / over 19
