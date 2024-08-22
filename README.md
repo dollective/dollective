@@ -7,12 +7,10 @@
 <br>
 
 basic boundaries or something
-- dont cover me with ponies unless you want to be perm hidden <br>
-- dont cover me with messages unless you want to be perm muted <br>
-- dont flirt with me or my boyfriend. thanks for understanding! :heart: <br>
-- im not cuddle/hide friendly, i will only ever sit with my partner <br>
-- i will be aggressive with you and your friends if you piss me off LOL <br>
-- i rarely talk outside of party chat or whispers, do NOT force me to <br>
+- dont cover me with ponies unless you want to be perm hidden 
+- dont cover me with messages unless you want to be perm muted 
+- i rarely talk outside of party chat or whispers, do NOT force me to 
+- please dont flirt with me or my partner
 <br>
 
 short dni list <br>
