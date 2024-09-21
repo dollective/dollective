@@ -1,5 +1,5 @@
-![](https://komarev.com/ghpvc/?username=ranpos&color=dedede) <br>
-better view on pc 
+![](https://komarev.com/ghpvc/?username=ranpos&color=dedede)
+　♡　 best viewed on pc 
 
 <p align="center">
 <img src="https://file.garden/ZsDIhjQ9dy2RG4Fr/ghdiv1"/>
