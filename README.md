@@ -7,6 +7,11 @@
 </p>
 
 <p align="center">
+ranpo ︎︎︎ ︎︎︎ou ︎︎︎ ︎︎︎ranny ︎︎︎ ︎︎︎ ︎︎︎ ︎︎︎೨୧ ︎︎︎ ︎︎︎ ︎︎︎ ︎︎︎he ︎︎︎ ︎︎︎doll ︎︎︎ ︎︎︎fwu <br>
+diagnosed ︎︎︎ ︎︎︎autism, ︎︎︎ ︎︎︎ ︎︎︎ ︎︎︎mascneu ︎︎︎ ︎︎︎boyflux <br>
+</p>
+
+<p align="center">
 <img src="https://file.garden/ZsDIhjQ9dy2RG4Fr/ghdiv2"/>
 </p>
 
