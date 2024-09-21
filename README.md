@@ -8,5 +8,5 @@
 <img src="https://file.garden/ZsDIhjQ9dy2RG4Fr/ghdiv2"/>
 </p>
 
-![](https://komarev.com/ghpvc/?username=ranpos&color=dedede)
-　♡　 best viewed on pc 
+![](https://komarev.com/ghpvc/?username=ranpos&color=dedede) <br>
+best viewed on pc 
