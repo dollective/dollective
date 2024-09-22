@@ -8,7 +8,7 @@
 
 <p align="center">
 ranpo ︎︎︎ ︎︎︎ou ︎︎︎ ︎︎︎ranny ︎︎︎ ︎︎︎ ︎︎︎ ︎︎︎೨୧ ︎︎︎ ︎︎︎ ︎︎︎ ︎︎︎he ︎︎︎ ︎︎︎doll ︎︎︎ ︎︎︎fwu <br>
-diagnosed ︎︎︎ ︎︎︎autism, ︎︎︎ ︎︎︎ ︎︎︎ ︎︎︎mascneu ︎︎︎ ︎︎︎boyflux <br>
+diagnosed ︎︎︎ ︎︎︎autism, ︎︎︎ ︎︎︎ ︎︎︎ ︎︎︎neumasc ︎︎︎ ︎︎︎boyflux <br>
 </p>
 
 <p align="center">
