@@ -17,8 +17,4 @@ diagnosed ︎︎︎ ︎︎︎autism, ︎︎︎ ︎︎︎ ︎︎︎ ︎︎︎neum
 
 ![](https://komarev.com/ghpvc/?username=ranpos&color=dedede) <br>
 best viewed on pc, <br>
-for the love of god <br>
-please also view my <br>
-strawpage on pc Oh <br>
-my god it looks SO <br>
-AWFUL on mobile.
+view strwpge on pc too
