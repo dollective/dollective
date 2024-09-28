@@ -2,9 +2,6 @@
 <img src="https://file.garden/ZsDIhjQ9dy2RG4Fr/ghdiv1"/>
 </p>
 
-<p align="center">
-<img src="https://file.garden/ZsDIhjQ9dy2RG4Fr/karlandranpo"/>
-</p>
 
 <p align="center">
 ranpo ︎︎︎ ︎︎︎ou ︎︎︎ ︎︎︎ranny ︎︎︎ ︎︎︎ ︎︎︎ ︎︎︎೨୧ ︎︎︎ ︎︎︎ ︎︎︎ ︎︎︎he ︎︎︎ ︎︎︎doll ︎︎︎ ︎︎︎fwu <br>
