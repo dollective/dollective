@@ -8,11 +8,6 @@
  ︎︎︎ ︎︎︎<br>
  ︎︎︎ ︎︎︎<br>
  ︎︎︎ ︎︎︎<br>
- ︎︎︎ ︎︎︎<br>
- ︎︎︎ ︎︎︎<br>
- ︎︎︎ ︎︎︎<br>
- ︎︎︎ ︎︎︎<br>
- ︎︎︎ ︎︎︎<br>
  
 ![](https://komarev.com/ghpvc/?username=ranpos&color=5c4d35) <br>
 sidebar is a wip for now, <br>
