@@ -1,5 +1,3 @@
-![](https://komarev.com/ghpvc/?username=ranpos&color=5c4d35) <br>
-
 <p align="center">
 <img src="https://files.catbox.moe/7zmfue.png"/>
 </p>
@@ -14,3 +12,5 @@ $\text{\color{#4d3737}{view ︎︎︎ ︎︎︎strwpge ︎︎︎ ︎︎︎on ︎
 <p align="center">
 <img src="https://files.catbox.moe/2k6kwf.png"/>
 </p>
+
+![](https://komarev.com/ghpvc/?username=ranpos&color=5c4d35) <br>
