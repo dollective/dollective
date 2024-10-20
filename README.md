@@ -1,10 +1,4 @@
-<p align="center">
-<img src="https://static.vecteezy.com/system/resources/thumbnails/035/589/387/small/confetti-transparent-png.png"/> <br>
-
-<p align="center">
-$\text{\color{#eb5d1d}{ranpo ︎︎︎ ︎︎︎ou ︎︎︎ ︎︎︎ranny　✿　he ︎︎︎ ︎︎︎doll}}$ <br>
-$\text{\color{#ff74d0}{whisp 2 int　୨୧　do not cover}}$ <br>
-$\text{\color{#5ecfff}{view ︎︎︎ ︎︎︎strwpge ︎︎︎ ︎︎︎on ︎︎︎ ︎︎︎pc ︎︎︎ ︎︎︎( ˶ˆᗜˆ˵ )}}$ <br>
-</p>
-
-![](https://komarev.com/ghpvc/?username=ranpos&color=00b58a) <br>
+![](https://komarev.com/ghpvc/?username=ranpos&color=d95213) <br>
+i dont know what to put here HI IM RANPO TODAY IS MY BIRTHDKAY <br>
+ummplease be my friend also read my strawpage on pc otherwise <br>
+it looks awful 
