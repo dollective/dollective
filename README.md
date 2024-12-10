@@ -1,13 +1,9 @@
-![](https://komarev.com/ghpvc/?username=ranpos&color=dedede) <br>
-wip
+![](https://komarev.com/ghpvc/?username=ranpos&color=dedede) <br> wip
 
 <p align="center">
 <img src="https://files.catbox.moe/uuwerr.png"/>
 </p>
 
-<p align="center">
-<img src="https://files.catbox.moe/cnvkre.png"/>
-</p>
 
 <p align="center">
 <img src="https://files.catbox.moe/9hdndd.png"/>
