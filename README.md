@@ -1,5 +1,18 @@
-![](https://komarev.com/ghpvc/?username=ranpos&color=c1b6b3) <br>
+![](https://komarev.com/ghpvc/?username=ranpos&color=dedede) <br>
+wip
 
+<p align="center">
+<img src="https://files.catbox.moe/uuwerr.png"/>
+</p>
 
-<img src="https://files.catbox.moe/mkwd08.png"/>
+<p align="center">
+<img src="https://files.catbox.moe/cnvkre.png"/>
+</p>
 
+<p align="center">
+<img src="https://files.catbox.moe/9hdndd.png"/>
+</p>
+
+<p align="center">
+<img src="https://files.catbox.moe/f9jlyt.png"/>
+</p>
