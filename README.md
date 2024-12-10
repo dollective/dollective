@@ -1,5 +1,3 @@
-![](https://komarev.com/ghpvc/?username=ranpos&color=dedede) <br> wip
-
 <p align="center">
 <img src="https://files.catbox.moe/uuwerr.png"/>
 </p>
@@ -12,3 +10,5 @@
 <p align="center">
 <img src="https://files.catbox.moe/f9jlyt.png"/>
 </p>
+
+![](https://komarev.com/ghpvc/?username=ranpos&color=dedede) <br> 
