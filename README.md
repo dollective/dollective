@@ -7,11 +7,9 @@
 </p>
 
 <p align="center">
-    <img src="https://files.catbox.moe/7t67u0.png"/>
 <img src="https://files.catbox.moe/viypct.png"/>
 <img src="https://files.catbox.moe/2yc4ih.png"/> 
 <img src="https://files.catbox.moe/bi6luk.png"/>
-    <img src="https://files.catbox.moe/wazqa9.png"/>
 </p>
 
 <p align="center">
